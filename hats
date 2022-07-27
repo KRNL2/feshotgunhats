@@ -1,0 +1,2 @@
+--https://web.roblox.com/catalog/48474313/Red-Roblox-Cap
+--https://web.roblox.com/catalog/5134896593/Red-Sci-Fi-Scattergun
